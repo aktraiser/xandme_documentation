@@ -1,166 +1,4 @@
-## Page 1
-# PROJECTEURS
-## L’ÉCLAIRAGE INDISPENSABLE 
-
-## POUR PRÉPARER VOTRE PROJET
-# OUVRIR UNE 
-# BOULANGERIE 
-
-# ARTISANALE
-## NOVEMBRE 2022
-
----
-## Page 2
-# PROJECTEURS
-**Le dossier Projecteurs OUVRIR UNE BOULANGERIE ARTISANALE est édité par l'organisme public.**
-Son contenu est 100 % numérique. Il est vendu au prix de 16 € TTC à l’adresse : https://organisme-public-creation.fr/librairie
-27-31, avenue du Général Leclerc, 94700 Maisons-Alfort
-**DIRECTEUR DE LA PUBLICATION
-**
-Nicolas Dufourcq
-**CONTACTS 
-**
-Caroline Gilabert (caroline.gilabert@organisme-public.fr)
-Laurence Tassone (laurence.tassone@organisme-public.fr)
-ISBN : 978-2-38076-041-5
-organisme public, novembre 2022
-# AVANT-PROPOS
-**MISES EN GARDE **
-1. 
-Ce dossier est réalisé par l'organisme public Création avec la collaboration de certains organismes professionnels. Malgré tout le soin apporté 
-à sa réalisation, l'organisme public ne peut garantir les informations dans le temps et décline toute responsabilité quant aux conséquences 
-résultant de leur usage ou d’erreurs éventuelles. Les exemples sont donnés à titre indicatif et non exhaustif, et ne sauraient en aucun 
-cas engager la responsabilité de l'organisme public à quelque titre que ce soit.
-2. 
-Ce dossier ne constitue pas une méthodologie de création ou de reprise d’entreprise. Seules sont analysées les spécificités d’une 
-profession. Pour répondre à des questions d’ordre général sur la méthodologie de la création d’entreprise, reportez-vous au site 
-Internet de l'organisme public Création : https://organisme-public-creation.fr
-3. 
-En application du Code de la propriété intellectuelle, IL EST INTERDIT DE REPRODUIRE intégralement ou partiellement ce document, 
-sur quelque support que ce soit, sans l’autorisation préalable écrite de l'organisme public Création. Pour toute demande, utilisez le formulaire 
-de contact du site de l'organisme public Création.
-Les dossiers Projecteurs constituent un outil de premier niveau d’analyse d’un métier 
-ou d’un secteur. Ils s’adressent aux porteurs de projets entrepreneuriaux, futurs micro-
-entrepreneurs ou dirigeants de TPE (commerçants, artisans, professions libérales, etc.), 
-et à leurs conseillers. 
-Chaque dossier présente de façon synthétique et pédagogique une description de 
-l’activité sur les plans économique et réglementaire, les tendances, les chiffres-clés 
-du métier et/ou du marché, la réglementation applicable, des contacts et des sources 
-d’information, une bibliographie ainsi que de nombreux conseils. 
-Ce document ne développe pas la méthodologie générale de création/reprise d’entreprise. 
-Celle-ci est détaillée sur le site organisme-public-creation.fr. Vous y trouverez des contenus
-
-spécifiques sur les statuts juridiques, les financements, les aides, la fiscalité, les 
-**locaux, le statut fiscal et social de l’entrepreneur… Rapprochez-vous également **
-
-des réseaux d’accompagnement à la création/reprise d’entreprise pour une étude 
-locale de votre marché.  
-Si vous souhaitez actualiser les informations contenues dans ce dossier, n’hésitez pas 
-à vous renseigner directement auprès des sources mentionnées.
-
----
-## Page 3
-Tous droits réservés l'organisme de financement Création
-# PROJECTEURS
-# OUVRIR UNE 
-
-# BOULANGERIE
-
-# ARTISANALE
-# “
-#  
-# Qui ne pétrit, bon pain ne mange.”
-Jean-Antoine de Baïf* 
-** Poète français (1532-1589).*
-# MERCI
-aux personnes qui ont bien voulu répondre à nos questions, 
-
-en particulier :
-**• **
-Eric Collavini, responsable national Transactions et Financements de 
-**Grands Moulins de Paris**
-**• **
-Le pôle juridique de la Confédération nationale de la boulangerie 
-**et boulangerie-pâtisserie française**
-**• **
-Le service Veille Artisanat de CMA France
-N’hésitez pas à partager avec nous vos réflexions et expériences !
-
----
-## Page 4
-# PROJECTEURS
-# AVERTISSEMENT
-Chers créateurs entrepreneurs, 
-**Vous venez d’acquérir ce dossier Projecteurs rédigé pendant la crise liée à la **
-**Covid-19. **
-**Une grande partie des secteurs d’activité et des métiers que nous traitons dans **
-**ces dossiers ont vu leurs perspectives de marché à court terme bouleversées **
-**par cet arrêt brutal et inédit de l’activité lié aux périodes de confinement et **
-**par une reprise plus ou moins effective et rapide selon les activités. **
-Les informations que nous mettons à votre disposition dans la partie 3 des dossiers 
-Projecteurs sont, pour la plupart, des éléments concernant la structure de votre marché 
-qui restent pertinents pour la mise en place de votre projet.
-En cette période incertaine, les organisations professionnelles mentionnées dans la 
-dernière partie de chaque dossier Projecteurs sont mobilisées pour accompagner au 
-mieux leurs adhérents actuels et futurs dans la traversée de cette crise ou la création 
-de leur entreprise. Afin d’obtenir les informations les plus récentes sur l’évolution de 
-votre futur marché, nous vous invitons à vous rapprocher de ces organisations qui sont 
-les plus à même de vous communiquer les derniers chiffres et les éventuelles mesures 
-spécifiques mises en place par le gouvernement en faveur de votre secteur.
-Parallèlement à cette démarche, nous vous conseillons d’effectuer une veille régulière 
-en mettant en place les actions suivantes :
-**• **
-surveillez les nouveaux contenus de l'organisme de financement Création et abonnez-vous à sa 
-**newsletter ;**
-**• **
-effectuez une veille sur le site du Cedef, le centre de documentation du ministère de 
-l’Économie, des Finances et de la Relance ;
-**• **
-consultez régulièrement des sources qui suivent l’activité sectorielle, comme les 
-*newsletters des revues sectorielles, notamment celles mentionnées dans la partie 7 *
-de chaque dossier Projecteurs.
-Nous vous souhaitons une belle réussite dans votre projet !
-L’équipe des dossiers Projecteurs
-Tous droits réservés l'organisme de financement Création
-
----
-## Page 5
-Tous droits réservés l'organisme de financement Création
-
-# SOMMAIRE
-# 1.
-# 2.
-# 3.
-# 4.
-# 5.
-# 6.
-# 7.
-# EN BREF	
-# 6
-# DÉFINITION DE LA PROFESSION	
-# 8
-# ÉLÉMENTS DE L’ÉTUDE DE MARCHÉ	
-# 13
-# MOYENS POUR DÉMARRER L’ACTIVITÉ 	
-# 37
-# ÉLÉMENTS FINANCIERS	
-# 45
-# RÈGLES DE LA PROFESSION	
-# 52
-# CONTACTS ET SOURCES D’INFORMATION	
-# 58
-
----
-## Page 6
-# 1.
-# EN 
-# BREF
-
----
-## Page 7
-Tous droits réservés l'organisme de financement Création
- | 7
-**Dossier Projecteurs | OUVRIR UNE BOULANGERIE ARTISANALE**
+**OUVRIR UNE BOULANGERIE ARTISANALE**
 # EN BREF
 ## Le pain occupe une place de choix dans l’alimentation des Français. Rangée entre 
 ## la tour Eiffel et le béret, la baguette artisanale figure au premier plan de la carte 
@@ -231,19 +69,14 @@ peut, s’il le souhaite, se fournir auprès d’autres artisans comme auprès d
 De nombreux boulangers proposent aussi un service de restauration sur place à l’heure du déjeuner. Et 
 ceux qui souhaitent mettre en vente des glaces peuvent les fabriquer ou revendre des produits issus de 
 grandes marques ou d’artisans.
-Il existe trois catégories de boulangerie artisanale 
-:
-**• **
+Il existe trois catégories de boulangerie artisanale :
+
 les boulangeries artisanales indépendantes ;
-**• **
 les boulangeries artisanales sous enseigne, en franchise ;
-**• **
 les boulangeries artisanales associées à la marque d’un moulin sans être sous franchise.
 Dès lors que le professionnel ne prend pas en charge le processus de fabrication du pain dans sa totalité, 
 il ne peut pas utiliser l’appellation de « boulanger » et son enseigne commerciale ne peut pas inclure le 
-terme de « boulangerie » (article L122-17 du Code de la consommation). Dans ce cas, il peut 
-:
-**• **
+terme de « boulangerie » (article L122-17 du Code de la consommation). Dans ce cas, il peut :
 acheter la pâte congelée auprès d’un industriel pour ensuite la cuire lui-même ; il s’agit alors d’un 
 **terminal de cuisson ;**
 **• **
